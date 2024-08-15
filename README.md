@@ -1,11 +1,15 @@
 olá! seja bem vindo no meu perfil🥰
 
-**Maria Eduarda Oliveira**✨️
+**Maria Eduarda Oliveira** ❣︎
 
--Estou estudando na [Alura](https://www.alura.com.br/)
+-Estou estudando na [Alura](https://www.alura.com.br/) 📚
 
-Meu maior foco é servir a Jesus
+Meu maior foco é servir a Jesus ✝️
 
-Tento ser uma pessoa melhor a cada dia 
+Tento ser uma pessoa melhor a cada dia ✨
 
-Salmos 121
+Pretendo cursar medicina ⚕︎ 
+
+Salmos 121 ❤️‍🩹
+
+![](https://media1.tenor.com/m/D6P7ayaAqY0AAAAd/the-chosen-os-escolhidos.gif)
