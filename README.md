@@ -2,7 +2,7 @@ olá! seja bem vindo no meu perfil🥰
 
 **Maria Eduarda Oliveira**✨️
 
--Estou estudando na {Alura}(https://www.alura.com.br/)
+-Estou estudando na [Alura](https://www.alura.com.br/)
 
 Meu maior foco é servir a Jesus
 
