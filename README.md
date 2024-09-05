@@ -4,6 +4,8 @@ olá! seja bem vindo no meu perfil🥰
 
 -Estou estudando na [Alura](https://www.alura.com.br/) 📚
 
+15 Anos
+
 Meu maior foco é servir a Jesus ✝️
 
 Tento ser uma pessoa melhor a cada dia ✨
